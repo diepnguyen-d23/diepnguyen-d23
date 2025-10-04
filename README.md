@@ -28,4 +28,6 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=diepnguyen-d23&icon=0&color=0)](https://visitcount.itsvg.in)
 
+<h2 align="center">🌟Thank you for reading my introduction!🌟</h2>
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
